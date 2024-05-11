@@ -17,6 +17,7 @@ Relatórios e Dashboards Profissionais
 - Aula 04 – 11/04 -
 Fórmulas e Recursos do Mercado
 
+![Certificado - Simplifica Excel Express](/Certificado%20-%20Simplifica%20Excel%20Express.jpg)
 
 
 
