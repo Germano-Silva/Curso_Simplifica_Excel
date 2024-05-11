@@ -1,8 +1,8 @@
 # Curso_Simplifica_Excel
 ### Prof. Ítalo Teotônio
-Forão 4 aulas online, ao vivo e gratuitas.O 
+Forão 4 aulas online, ao vivo e gratuitas. 
 
-Curso aconteceu de 08 a 11 de Abril, às
+O curso aconteceu de 08 a 11 de Abril, às
 19:30.
 
 - Aula 01 – 08/04 -
